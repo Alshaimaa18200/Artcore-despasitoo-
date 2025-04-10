@@ -1,2 +1,2 @@
-# Artcore-despasitoo-
-مشروع تخرج جماعي في مبادره رواد مصر الرقميه الدفعه الثانيه جروب 406 موشن جرافيك تحت اشراف بشمهندس محمد منصور . مشروع عن اعلانن  لشوكولاته ديسباسيتو المصريه 
+# Artcore-despasitoo 
+https://drive.google.com/drive/folders/15Igb9OcWR8WXGUZO_IKCyLt_WnOZgkul?usp=drive_link
